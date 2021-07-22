@@ -1,5 +1,4 @@
-# fartomatic
- Taking your RP to the Next Level !!! All you do is drop this little bomb on your server and start it up and let the RP blow! All you do is hit F11 and you make super mega magic fart sounds, it's sure to take shity RP to the next level!
+For I have made a mod to rule them all, no other mod in the world will have a larger impact on your shity RP, than this mod. This will provide you with a new found use for the golden "F11" key " The Power Key", for this key alone will not have much power in the RP world without this mod. I could not hold it in much longer, I had to let it be free and blow like the wind in all the RP cities around the world, Now go out, be free, be strong, and smash the golden F11 key and let it blow like the wind. 
  
  This was build on ESX 1.2 and no pets were harmed in the making of this resource.
  
